@@ -31,10 +31,12 @@ Well we dont need spoilers for the movie and dw
 <img width="335" height="597" alt="images (1)" src="https://github.com/user-attachments/assets/a96a4c1f-a221-4df5-9879-79ba25775807" />
 <img width="335" height="597" alt="images (1)" src="https://github.com/user-attachments/assets/a96a4c1f-a221-4df5-9879-79ba25775807" />
 <img width="335" height="597" alt="images (1)" src="https://github.com/user-attachments/assets/a96a4c1f-a221-4df5-9879-79ba25775807" />
+<img width="335" height="597" alt="images (1)" src="<img width="480" height="282" alt="image" src="https://github.com/user-attachments/assets/41024d31-389b-45a6-be31-7b965c9d8959" />
+" />
 
 
 
 
 
 HEYYYYYYYYYY PLZ SAVE ME
-https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExb3dkMmJxMjBpejk0bXdna283a2t1OGRuNmduM2Fqb2J0dWx4cmU4NSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/1qErVv5GVUac8uqBJU/giphy.gif
+
