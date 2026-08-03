@@ -32,3 +32,8 @@ Well we dont need spoilers for the movie and dw
 <img width="335" height="597" alt="images (1)" src="https://github.com/user-attachments/assets/a96a4c1f-a221-4df5-9879-79ba25775807" />
 <img width="335" height="597" alt="images (1)" src="https://github.com/user-attachments/assets/a96a4c1f-a221-4df5-9879-79ba25775807" />
 <img width="335" height="597" alt="images (1)" src="https://github.com/user-attachments/assets/a96a4c1f-a221-4df5-9879-79ba25775807" />
+
+
+
+
+
