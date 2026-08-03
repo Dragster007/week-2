@@ -16,4 +16,9 @@ Sameer: THIS SUCKS - IT TOOK ME 1hr to get my comments on here
 yll watched spiderman BND ?
 Terry: no I have not
 Leon :I actually watched it today@11
-
+<img width="335" height="597" alt="images" src="https://github.com/user-attachments/assets/64dbb17c-7777-425d-be5c-64468c1dc6eb" />
+<img width="335" height="597" alt="images" src="https://github.com/user-attachments/assets/64dbb17c-7777-425d-be5c-64468c1dc6eb" />
+<img width="335" height="597" alt="images" src="https://github.com/user-attachments/assets/64dbb17c-7777-425d-be5c-64468c1dc6eb" />
+<img width="335" height="597" alt="images" src="https://github.com/user-attachments/assets/64dbb17c-7777-425d-be5c-64468c1dc6eb" />
+<img width="335" height="597" alt="images" src="https://github.com/user-attachments/assets/64dbb17c-7777-425d-be5c-64468c1dc6eb" />
+<img width="335" height="597" alt="images" src="https://github.com/user-attachments/assets/64dbb17c-7777-425d-be5c-64468c1dc6eb" />
