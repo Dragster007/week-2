@@ -22,3 +22,4 @@ Leon :I actually watched it today@11
 <img width="335" height="597" alt="images" src="https://github.com/user-attachments/assets/64dbb17c-7777-425d-be5c-64468c1dc6eb" />
 <img width="335" height="597" alt="images" src="https://github.com/user-attachments/assets/64dbb17c-7777-425d-be5c-64468c1dc6eb" />
 <img width="335" height="597" alt="images" src="https://github.com/user-attachments/assets/64dbb17c-7777-425d-be5c-64468c1dc6eb" />
+Well we dont need spoilers for the movie and dw  
