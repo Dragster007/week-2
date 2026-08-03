@@ -1,3 +1,4 @@
+<img width="335" height="597" alt="images" src="https://github.com/user-attachments/assets/64dbb17c-7777-425d-be5c-64468c1dc6eb" />
 # week  2
 Chat Message
 hello
